@@ -1,0 +1,8 @@
+- cut the dark chocolate up in small pieces 
+- put it in a pan with a little bit of butter
+- Add the "Milk maid" and milk. 
+- stir until thick 
+- Take the pan out and let cool
+- After the mixture is cooled , take a bit of cocoa powder and start kneading the dough-like mixture
+- Knead them into balls
+- Enjoy these chocolate delights!
